@@ -5,7 +5,7 @@
 + Im a [Artist](https://www.instagram.com/s0r0dlee/) !! Feel free to support me.
 + I listen to alot of music ^p^, i could say i listen to it everysingle fucking day
 + ![image](https://user-images.githubusercontent.com/114108644/209179631-0daf5862-b057-4bfe-81db-2e99edd905e0.png)
-+ Discord ; robotgelic#8233
++ Discord ; rob0tgelic#8233
 + Skullgirls ; SoroGay
 + Ponytown ; Feel free to whisper/talk to me anytime, i *really* dont mind. Cuddles and very much ok ! ^_^
 + Check my [Rentry](https://rentry.co/sorokinari) for more info 
