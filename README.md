@@ -1,1 +1,1 @@
-Check my [Rentry](https://rentry.co/sorokinari) for more info 
+Check my [Rentry](https://rentry.co/GLaDOSS) for more info 
